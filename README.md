@@ -1,0 +1,1 @@
+# Training-2026-Obsidian
